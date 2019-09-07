@@ -1,1 +1,2 @@
 # hello-world
+My name is Marilyn and I have totally turned my world upside-down, jacked in my job and become a full-time student to chase the idea that I can learn to use computers properly, after decades of tinkering and fiddling with technology just to see if I could.  My kids have grown up and left home and my husband ran off with a 19 year old blonde, so this seems like the perfect time to find out who I can be.  
